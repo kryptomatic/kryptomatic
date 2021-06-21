@@ -1,6 +1,6 @@
 Hi, I’m @kryptomatic
 
-I’m interested in writer and researcher in the DeFi space.
+I’m a in writer and researcher in the DeFi space.
 
 
 <!---
